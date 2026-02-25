@@ -12,7 +12,7 @@ Based in Indonesia. Just call me Jiwo.
 
 <br>
 
-### Links
+### Social Links
 [LinkedIn](https://www.linkedin.com/in/bagus-sajiwo-6b0aa93b1/) • [Email](mailto:bsajiwo805@gmail.com) • [Portfolio](https://github.com/Chunchunmaru08)
 
 ---
