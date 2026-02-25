@@ -1,5 +1,5 @@
 # Bagus Sajiwo K.W
-Web Designer
+Beginner Frontend Website Developer.
 
 ### About
 Based in Indonesia. Just call me Jiwo.
